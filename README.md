@@ -3,3 +3,5 @@ Lasagna image is free to use, was obtained on https://www.pexels.com and can be 
 
 Pesto tortellini image is free to use, was obtained
 on https://www.flickr.com and can be attributed to Eliot Phillips.
+
+Pizza image is free to use, was obtained on https://www.flickr.com and can be attributed to Stephanie Vacher.
